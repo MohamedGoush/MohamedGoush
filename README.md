@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ### 4 Step Formula for Execution
 
 ### 1. MEG ( Most Essential Goal )
