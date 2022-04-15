@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+### 4 Step Formula for Execution
+
+### 1. MEG ( Most Essential Goal )
+### 2. Effert Score & Result Score
+### 3. Score Board
+### 4. Weekly Review Meating.
+
 <!--
 **MohamedGoush/MohamedGoush** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
