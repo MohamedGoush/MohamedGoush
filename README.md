@@ -1,3 +1,5 @@
+### You only have one chance to make a first impression
+
 ### 4 Step Formula for Execution
 
 ### 1. MEG ( Most Essential Goal )
